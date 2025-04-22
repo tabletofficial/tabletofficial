@@ -9,4 +9,5 @@ function tabletfunc() {
 Your the best !!!
 Download's my powerpoint os's from my official site!
 Download my new: `PowerPoint OS` from my official site! and download my trojans for you ;)
-> Not scary for download my trojans!
+> [!HAHA]
+> Not scary for downloading my trojans!
